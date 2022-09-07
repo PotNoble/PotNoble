@@ -1,4 +1,4 @@
-# Hello there!👋 I am Cole!
+# Hello there!👋 I'm Cole!
 
 
 <br />
